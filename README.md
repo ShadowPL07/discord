@@ -1,1 +1,1 @@
-# discord
+# discord vai tomar no cu
